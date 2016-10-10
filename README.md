@@ -1,1 +1,1 @@
-# sheridanjt86
+# sheridanjt86 - Hi, I'm an 18 year old man from the suburbs of New York City. I'm interested in sports and technology. I want to work in the field of sustainable energy. Basketball is my favorite sport to play and watch.
